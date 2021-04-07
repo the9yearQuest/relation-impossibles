@@ -17,3 +17,6 @@ both of them are ideas that intrigues me and i like to commit to them.
 but at the same time I see that one may not carry too many big stones.
 I am already thinking about it here and there, bits and pieaes, maybe it is just collecting those.
 and maybe that is just the big job that will not finish
+
+
+OK hell right so what do I got about relationship i want to think about what I want what I don't want today I'm not in the mood to think about the story or anything but i just need to start from somewhere I guess part of the reason that I have so much back-and-forth and coral wait tina is that I don't have clear boundaries on what I don't want although I have made myself very clear on the level of insults i think he's not acceptable should I review it myself what happened
